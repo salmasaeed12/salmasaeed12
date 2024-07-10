@@ -1,4 +1,4 @@
-# Welcome to Salma Saeed's GitHub Profile!
+# Welcome to Salmozz's GitHub Profile!
 
 ## About Me
 
