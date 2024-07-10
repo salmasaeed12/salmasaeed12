@@ -1,4 +1,4 @@
-# Welcome to Salmozz's GitHub Profile!
+# Welcome to Salomazz's GitHub Profile!
 
 ## About Me
 
